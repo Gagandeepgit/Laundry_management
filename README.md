@@ -1,1 +1,0 @@
-# Laundry_management
